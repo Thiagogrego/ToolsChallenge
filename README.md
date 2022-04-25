@@ -37,4 +37,4 @@ Consulta:
 
 Thiago Teixeira Grego
 
-https://github.com/Thiagogrego
+www.linkedin.com/in/thiago-grego
